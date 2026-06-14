@@ -1,0 +1,41 @@
+# Corpus Hermeticum V — Scott (1924)
+
+**A discourse of Hermes to his son Tat. That God is hidden from sight, and yet is most manifest.**
+
+*Walter Scott, Hermetica, Vol. I. Oxford: Clarendon Press, 1924, pp. 157-163.*
+
+---
+
+**1a.** This doctrine also, Tat, I will expound to you, that you may not remain uninitiated in the mysteries of Him who is too mighty to be named God. Grasp the meaning of my words; for if you grasp it, that which seems to the many to be hidden will become most manifest to you.
+
+**1b.** For all that is manifest has been brought into being; for it has been manifested. But that which is hidden is ever-existent; for it has no need to be manifested. ...; for God is ever-existent; and He makes manifest all else, but He himself is hidden, because He is ever-existent. He manifests all things, but is not manifested; He is not himself brought into being in images presented through our senses, but He presents all things to us in such images. It is only things which are brought into being that are presented through sense; coming into being is nothing else than presentation through sense.
+
+It is evident then that He who alone has not come into being cannot be presented through sense; and that being so, He is hidden from our sight.
+
+**2.** But He presents all things to us through our senses, and thereby manifests himself through all things, and in all things; and especially, to those to whom He wills to manifest himself.
+
+Begin then, my son Tat, with a prayer to the Lord and Father, who alone is good; pray that you may find favour with him, and that one ray of him, if only one, may flash into your mind, that so you may have power to grasp in thought that mighty Being. For thought alone can see that which is hidden, inasmuch as thought itself is hidden from sight; and if even the thought which is within you is hidden from your sight, how can He, being in himself, be manifested to you through your bodily eyes? But if you have power to see with the eyes of the mind, then, my son, He will manifest himself to you. For the Lord manifests himself ungrudgingly through all the universe; and you can behold God's image with your eyes, and lay hold on it with your hands.
+
+**3.** If you wish to see Him, think on the Sun, think on the course of the Moon, think on the order of the stars. Who is it that maintains that order? The Sun is the greatest of the gods in heaven; to him, as to their king and over-lord, all the gods of heaven yield place; and yet this mighty god, greater than earth and sea, submits to have smaller stars circling above him. Who is it then, my son, that he obeys with reverence and awe? Each of these stars too is confined by measured limits, and has an appointed space to range in. Why do not all the stars in heaven run like and equal courses? Who is it that has assigned to each its place, and marked out for each the extent of its course?
+
+**4.** The Bear, who revolves upon herself, and carries round with her the whole Kosmos, — who is it that owns this instrument? Who is it that has confined the sea within its bounds, and fixed the earth firm in its seat?
+
+Someone there must be, my son, who is the Maker and the Master of all these; it could not be that place and limit and measure should be observed by all, if there were not one who has made them. For all order must have been made; it is only that which is out of place and out of measure that has not been made. And yet, my son, even that which is out of place and out of measure is not without a master. If there is aught that is in disorder, ...; for disorder also is subject to the Master, but he has not yet imposed order upon it.
+
+**5.** Would that it were possible for you to grow wings, and soar into the air! Poised between earth and heaven, you might see the solid earth, the fluid sea and the streaming rivers, the wandering air, the penetrating fire, the courses of the stars, and the swiftness of the movement with which heaven encompasses all. What happiness were that, my son, to see all these borne along with one impulse, and to behold Him who is unmoved moving in all that moves, and Him who is hidden made manifest through his works! Such is the order of the universe.
+
+**6.** But if you wish to see Him through mortal creatures also, both those on earth and those in the depths of the sea, .... Think, my son, how man is fashioned in the womb; investigate with care the skill shown in that work, and find out what craftsman it is that makes this fair and godlike image. Who is it that has traced the circles of the eyes, that has pierced the orifices of the nostrils and the ears, and made the opening of the mouth? Who is it that has stretched the sinews out and tied them fast, and dug out the channels of the veins? Who is it that has made the bones hard, and covered the flesh with skin? Who is it that has separated the fingers, and shaped the broad surface of the soles of the feet? Who is it that has bored the ducts? Who is it that has shaped the heart into a cone, and joined the sinews to it, that has made the liver broad, and the spleen long, and hollowed out the cavities of the lungs, and made the belly capacious? Who is it that has so fashioned the most honourable parts that all may see them, and concealed the parts that are unseemly?
+
+**7.** See how many crafts have been employed on one material, and how many works of art are enclosed within one compass! All are beautiful, all true to measure, yet all are diverse one from another. Who produced all these? What mother, or what father? Who but the hidden God, who has wrought all things by his own will?
+
+**8.** No one says that a statue or a portrait has come into being without a sculptor or a painter; and has such a work as this come into being without a Maker? How blind men are! How impious, how obtuse! Never, my son, deprive the things made of their Maker; but rather....
+
+**9.** For who else is the Father of all? Surely, He alone; and it is his work to be father. Nay, if I needs must speak with some boldness, I will even say that it is his very being to set all things in motion, and to make all things; and as it is impossible for anything to come into being without a maker, so too it needs must be that He does not exist, if he is not ever making all things, in heaven, in air, on earth, and in the deep, in every part of the Kosmos, in all that is and in all that is not. For in all this there is nothing that He is not. He is both the things that are and the things that are not; for the things that are He has made manifest, and the things that are not He contains within himself.
+
+**10a.** Such is He who is too great to be named God. He is hidden, yet most manifest. He is apprehensible by thought alone, yet we can see Him with our eyes. He is bodiless, and yet has many bodies, or rather, is embodied in all bodies. There is nothing that He is not; for all things that exist are even He. For this reason all names are names of Him, because all things come from Him, their one Father; and for this reason He has no name, because He is the Father of all.
+
+**10b.** Who then can utter blessing of thee, acting for thee, or towards thee? Whither am I to look when I bless thee? above? below? within? without? For thou art the Place of all things that are; there is no other place beside thee; all things are in thee. All comes from thee; thou givest all, and takest nothing; for thou hast all, and there is nothing that thou hast not.
+
+**11.** When shall I praise thee? For it is not possible to find thy hour or thy time. And for what shall I praise thee? For the things which thou hast made, or for the things thou hast not made? For the things which thou hast brought to light, or for the things which thou hast hidden?
+
+And with what shall I praise thee? As being something of my own? As being something other? For thou art whatever I am; thou art whatever I make; thou art whatever I say. Thou art all, and there is nothing else that thou art not. Even that which does not exist, thou art. Thou art all that has come into being, and all that has not come into being; thou art Mind, in that thou thinkest; and Father, in that thou makest; and God, in that thou workest; and the Good, in that thou makest all things.
